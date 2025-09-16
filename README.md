@@ -1,0 +1,1 @@
+# IK-33_INDEPENDENT-Kutaiev-Maksym-FIOT-2025
